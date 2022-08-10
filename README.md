@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jengy-vvs
-- 👀 I’m interested in video games, martial arts, teaching my kid how to do jujitsu breakfalls
+- 👀 I’m interested in video games and teaching my kid how to do breakfalls
 - 🌱 I’m currently learning how to adult
 - 💞️ I’m looking to collaborate on games!
 - 📫 How to reach me jengy@vvspaceship.email
